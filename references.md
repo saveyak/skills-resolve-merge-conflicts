@@ -1,5 +1,5 @@
 # References
 
 * octocat 1 😈
-* Joe Biden
-* Donald Trump
+* Blorga Bloo
+* Abraham Lincoln
